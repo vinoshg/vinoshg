@@ -1,4 +1,4 @@
-## Connect with me 💬 (https://linktr.ee/vinosh13)
+## [Connect with me 💬] (https://linktr.ee/vinosh13)
 
 
 <!--
